@@ -29,6 +29,10 @@
 + 
 - - -
 
+**6조**
++ 박우진
++ 진재언
+- - -
 **7조**
 + kim eun kyeong
 + Lee Seung Jae
